@@ -123,7 +123,7 @@ I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLE
 ![tumblr_pbl4whs7Xl1wlxvjlo9_100](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/0cd63547-3dd3-4d1d-8377-7a2f8fabdb57)
 ![tumblr_pbbaqrNazy1xz2nuuo8_100](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/07e82b37-0651-4576-bc13-cd91fe5bb878)
 ![tumblr_pblryrISUf1xzybrpo4_100](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/dd928c7b-094f-4dab-8831-bd05ea10d932)
-![ptr 02](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/1802f040-84a8-4f9a-82e7-00416e0a488b)
+![ptr 02](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/1802f040-84a8-4f9a-82e7-00416e0a488b) 
 ![ptr 03](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/ae19a481-2edf-4346-a10b-dd4e3fea6e19)
 ![ptr 04](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/36df5cd5-0a57-485f-8d45-25b4b193a6d8)
 ![eyes](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/1c863827-c560-45bd-9a12-edc65293c8ce)
