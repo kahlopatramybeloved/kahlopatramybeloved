@@ -1,4 +1,4 @@
-![1362620t6etzmcdpx](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/7f36b722-a88f-4812-be42-e7f973842acb) I LOVE COLLECTINGG !!! I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLECTING-THESE/assets/139278654/f7078399-85ab-4aa0-b0e7-5d6233a3d3e2)![mrrr](https://github.com/kahlopatramybeloved/I-LOVE-COLLECTING-THESE/assets/139278654/6a6b0c68-5757-4081-8a65-809b5d14d0ab)![359c4696](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/78e4e7cd-0a27-47e0-9cee-d0bac021d98f)
+I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLECTING-THESE/assets/139278654/f7078399-85ab-4aa0-b0e7-5d6233a3d3e2)![mrrr](https://github.com/kahlopatramybeloved/I-LOVE-COLLECTING-THESE/assets/139278654/6a6b0c68-5757-4081-8a65-809b5d14d0ab)![359c4696](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/78e4e7cd-0a27-47e0-9cee-d0bac021d98f)
 
 
 ![0188-knifechainsaw](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/1461b90b-0be3-4108-ac4e-aea62b81e10b)
@@ -143,3 +143,9 @@
 ![tumblr_pbbd1hGBbb1xz2nuuo4_100](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/f847f085-bb72-4bff-9d2b-5ac9fbc9eab8)
 ![tumblr_pbffcs5mpm1xz2nuuo1_250](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/83905ba7-d305-4f5e-a4b7-04771a4b87ae)
 ![tumblr_pbffcs5mpm1xz2nuuo6_100](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/92c1d09d-36c7-4b68-bfd5-d5a8873aac5d)
+
+![SQ6Xy](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/512fd6d6-0990-4fc1-a319-74ecf0e12f30)
+
+FEEL FREE TO USE!!
+
+CREDITS TO ORIGINAL CREATORS
