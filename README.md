@@ -106,6 +106,7 @@ I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLE
 ![1182857zzpdow7rmt](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/bfcc1d97-8287-40c8-8d94-dcd58a542464)
 ![1537840ls24oqdm1c](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/2b7392e1-e8d0-4c9d-acb0-cd74dee83f06)
 ![361718rc37xjq2oi](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/f06183ea-83df-4a06-a68a-b67e06ae3dff)
+![Uploading i-love-ferrets.gif…]()
 
 ![71db2a8076940c6d64eaf7c997b630f2-d4t7f43](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/2bdefd7f-9466-4a03-b627-396973c27473)
 ![tumblr_inline_pbk6zbvnsb1vjkfs0_540](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/85fcc255-c4e4-400a-9db1-6b57136cd535)
