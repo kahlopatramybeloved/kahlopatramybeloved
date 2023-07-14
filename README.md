@@ -94,8 +94,6 @@
 ![tumblr_inline_pe6lbupjD71v11djx_1280](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/2627ad0a-24a8-4c9a-ade8-fb36c2a021a1)
 ![tumblr_inline_pe6lc7ijO61v11djx_1280](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/a33b9239-77ac-422c-94be-9ecc301d296e)
 ![tumblr_inline_pe6litvpzv1v11djx_1280](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/75b47ce3-b8ad-4fbc-b5d9-44c734e88e1b)
-![tumblr_pgef2uZbKY1xzybrpo2_100](https://github.com/kahlopatramybeloved/kahlopat![teeethhhd6fd8ebc130e3098](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/6ecf4625-a880-4443-a2cf-cba14445b1b0)
-ramybeloved/assets/139278654/dfda6a06-8c08-4ef3-a917-9e4e3f11d3f0)
 ![tumblr_pgef2uZbKY1xzybrpo1_100](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/a7c7f7f1-8a78-4d71-8183-377e6242969a)
 ![tumblr_pdu1u6f4Fy1wpplaao6_100](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/698b1292-7c95-4016-87df-be770f11a697)
 ![tumblr_pgi830li6C1xzybrpo3_100](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/5a757772-e52f-4d95-af33-117dc3a63486)
