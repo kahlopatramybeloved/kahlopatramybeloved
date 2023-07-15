@@ -295,6 +295,8 @@ I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLE
 ![tumblr_01f7695c5b4eeb1be1db617d9209621b_d55831db_500](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/86969d30-ebf3-454b-b302-a882938b8d12)
 ![cat](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/b49d01a3-f897-4881-9d8d-f2def2d25ba1)
 ![werewolves](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/c491f6ed-7229-4bca-8571-94a64955e466)
+![Screenshot_2023-06-28_20 04 04](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/06e13076-0d1b-491b-a735-17f91edd6c17)
+![Screenshot_2023-06-28_20 08 04](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/1785a0a3-7e64-4b25-a63c-ce2db749eafa)
 
 
 
