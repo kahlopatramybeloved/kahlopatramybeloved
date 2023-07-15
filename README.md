@@ -200,3 +200,7 @@ I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLE
 FEEL FREE TO USE!!
 
 CREDITS TO ORIGINAL CREATORS
+https://blinki.es/other-3
+https://blinkies.cafe/
+https://y2k.neocities.org/blinkies
+https://www.glitter-graphics.com/gallery.php?categoryID=25
