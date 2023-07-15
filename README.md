@@ -12,7 +12,9 @@ TW FLASHING/EYE STRAIN, GORE??
 -
 -
 -
-I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLECTING-THESE/assets/139278654/f7078399-85ab-4aa0-b0e7-5d6233a3d3e2)![mrrr](https://github.com/kahlopatramybeloved/I-LOVE-COLLECTING-THESE/assets/139278654/6a6b0c68-5757-4081-8a65-809b5d14d0ab)![359c4696](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/78e4e7cd-0a27-47e0-9cee-d0bac021d98f)
+I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLECTING-THESE/assets/139278654/f7078399-85ab-4aa0-b0e7-5d6233a3d3e2)![mrrr](https://github.com/kahlopatramybeloved/I-LOVE-COLLECTING-THESE/assets/139278654/6a6b0c68-5757-4081-8a65-809b5d14d0ab)![359c4696](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/78e4e7cd-0a27-47e0-9cee-d0bac021d98f)![dehy0lh-2cec03fb-327b-48b7-937e-61ec1020a15a](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/9611029d-0ade-4120-8177-5b945437e212)![dehy0ro-bfcc6f78-5368-4df5-975f-cd3124b55c18](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/ecd54e1e-ee2f-4511-81a7-009433d19839)
+
+
 
 
 ![0188-knifechainsaw](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/1461b90b-0be3-4108-ac4e-aea62b81e10b)
