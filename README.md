@@ -206,5 +206,11 @@ https://blinki.es/other-3
 https://blinkies.cafe/
 https://y2k.neocities.org/blinkies
 https://www.glitter-graphics.com/gallery.php?categoryID=25
-
-ty lavender for most of them !! -> https://www.patreon.com/lavenderthegreat/about
+https://rentry.co/resources_
+https://rentry.co/vamptism
+https://blog.spacehey.com/entry?id=691100
+https://murderscene.neocities.org/blinkies
+https://twigbranch.carrd.co/
+https://rentry.co/knowledge
+https://alderheart.carrd.co/
+https://www.tumblr.com/cha0s-boyy/708751429374033920/some-blinkies-and-stamps-i-made-d-f2u-just?source=share
