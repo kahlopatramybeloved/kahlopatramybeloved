@@ -206,3 +206,5 @@ https://blinki.es/other-3
 https://blinkies.cafe/
 https://y2k.neocities.org/blinkies
 https://www.glitter-graphics.com/gallery.php?categoryID=25
+
+ty lavender for most of them !! -> https://www.patreon.com/lavenderthegreat/about
