@@ -171,6 +171,7 @@ I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLE
 ![0d1ab681](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/280dfda7-6470-4a38-906a-bf2afae82cc4)
 ![fa104306](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/89d6692c-4091-4f11-862e-590f7e056553)
 ![f1347bc6](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/eeaa1b76-e19e-45e5-8980-65af704302ab)
+![sloweddownblinkiescafe2](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/a341fe70-11e1-4404-8bae-a62f1751ccbe)
 
 
 ![71db2a8076940c6d64eaf7c997b630f2-d4t7f43](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/2bdefd7f-9466-4a03-b627-396973c27473)
@@ -287,6 +288,12 @@ I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLE
 ![725a92a1](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/9b2cb0da-15be-4eae-86fd-a71ebb4b2f99)
 ![01eccd04](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/9480775d-f728-4359-b53a-6209513a5f02)
 ![image31](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/9d88d418-d374-4821-bae5-16e105934fe1)
+![image27](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/39ebba49-b3ed-4b34-91d0-5d848010a751)
+![image01](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/38190004-8f71-4030-89dc-32f184c60f1f)
+![image05](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/3cc27ffb-e1ba-47bb-9ac7-fa8d8a80ddbf)
+![image07](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/820a6cda-f50e-4da5-bacf-0db245dc82e4)
+![image26](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/071579a5-49e1-4947-8552-4ddab927b467)
+![tumblr_01f7695c5b4eeb1be1db617d9209621b_d55831db_500](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/86969d30-ebf3-454b-b302-a882938b8d12)
 
 
 
@@ -305,3 +312,4 @@ https://twigbranch.carrd.co/
 https://rentry.co/knowledge
 https://alderheart.carrd.co/
 https://www.tumblr.com/cha0s-boyy/708751429374033920/some-blinkies-and-stamps-i-made-d-f2u-just?source=share
+https://applejupiter.carrd.co/#contact
