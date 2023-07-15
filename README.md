@@ -148,6 +148,16 @@ I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLE
 ![spiderman-in-action](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/f136bceb-fda4-4ed2-bc56-80b498e369f2)
 ![friday-the-13th](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/c53edb50-05b5-4f43-a232-70fcae466534)
 ![spiderman](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/1b5ee0ea-5341-4965-a8fe-35345db52c12)
+![1646719d](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/e2c22a94-0f0a-44c5-a754-4d783f099465)
+![94d8a931](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/81c6275e-5b89-4a62-bb76-5b8b3138d67b)
+![d2798764](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/df47c292-45c7-4048-91d8-914f1ea5565f)
+![tumblr_inline_phq6wwbFhX1r9dyo4_500](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/1ccf00fb-c31d-489c-bb79-4ff28d49fc5c)
+![a66d9c92](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/04c1bde3-4c10-4319-a5ce-6c84adfe7ee4)
+![rawr](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/cdd01125-d235-4967-96b5-f69e5c844daa)
+![1564179a6ve8b5s1b](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/2714c9ac-b1e3-44d1-92ce-7c667df346a9)
+![hellyeahimweird](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/7a4a4417-9def-4dfe-8616-44a4e6da84b0)
+![tumblr_p95utrQdSQ1x5gwxfo1_250](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/310dd09a-d416-481d-a419-1e1093f84524)
+![fjNUzNL](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/c9d81b4d-af64-410c-a8e8-a392a148e62a)
 
 
 ![71db2a8076940c6d64eaf7c997b630f2-d4t7f43](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/2bdefd7f-9466-4a03-b627-396973c27473)
@@ -197,6 +207,11 @@ I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLE
 ![d81j9pv-fea765e0-a402-405c-afe0-68d656b2f8e8](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/ff39dc3c-05f3-4409-a188-b264d9a6eb67)
 ![tumblr_1e54d4feeda427d05b51e6833b08504f_72513209_100](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/bae85158-bc87-4285-a82a-28874775eeb9)
 ![tumblr_d250f25e0e37392678f29fa4f7871815_e3cf61b0_100](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/5cae73d9-948f-482e-ad76-cfd5628b845c)
+![cfa5e743](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/3d2fc0ae-7679-4e60-a043-f7a521048777)
+![c8de1bda](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/22d4a117-dfc8-4d76-8261-9647ce8b247c)
+![a8f95ee8](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/c77b52f7-3d73-4657-ae70-472b8e842f05)
+![ddafxsr-85b54cdd-5e91-442c-98f2-74591f143d09](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/6d1b0e88-a803-497e-a8d3-409dc2cad070)
+![tumblr_inline_pdyulj01dm1v11djx_500](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/4ecc2fc7-2819-4a0d-9aaa-b65b4fa45348)
 
 
 ![SQ6Xy](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/512fd6d6-0990-4fc1-a319-74ecf0e12f30)
