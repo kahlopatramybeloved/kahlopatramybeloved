@@ -90,7 +90,6 @@ I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLE
 ![3741873zaklpw5gkn](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/fb3e7ea8-8db5-4fde-8c3a-fe84ef2b40fe)
 ![3741815gzjg4e68lo](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/254e8815-340a-4f17-a4f3-68c8685fc02e)
 ![223764rbue2qhj0u](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/35d88fca-cb72-43df-8bb4-a5a47ec7cba2)
-![1389594mrti0uf073](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/de73e5de-48c6-4d7e-9935-bf3547e72ee0)
 ![120288j3kaaguf1m](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/ed93fd86-aa0d-4433-a6ed-daa91bff9066)
 ![969132ff3t2b4u2x](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/e272bace-a086-45a3-aeac-1e05c2704529)
 ![1560725yhyu31pu3k](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/5422150d-6d63-4509-b2d7-5f9bb74f4dfc)
