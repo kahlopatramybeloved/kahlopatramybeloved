@@ -47,10 +47,13 @@ TW FLASHING/EYE STRAIN !!
 ![MARIOFUCKAYOUUUU](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/5c778a38-71c8-437f-8937-0cf7c882656b)
 ![01-29](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/ce691eb1-63ad-472f-b1a9-fc6cc58d6efd)
 ![d5myhff-8e87df76-e0e6-413e-948b-46aaaa133644](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/0f0c97e0-fbfb-46f7-9959-04ba3995c01e)
+![nXuRFA5](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/eea7be49-5963-4b17-befa-4783868c8e9e)
+![borgy](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/3981f864-a08e-422e-b33c-7870c2083a57)
 
 ![da05ya9-839674e0-4cc0-4438-8f8e-136c222c2200](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/25e47764-f6a1-4e4d-99eb-9d28cf662ce1)
 ![dadr9wx-04c76865-6ed4-4a5f-9ef2-195d9cd91334](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/db79b0bf-292c-4ba5-8a58-5074f0e3f68b)
-![dbjb9wp-91e653f2-1b27-4f6d-94ec-34cc367de015](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/031c34d6-f365-4ba9-8ae6-c0ec68536164)
+![dbjb9wp-91e653f2-1b27-4f6d-94ec-34cc367de015](https://gith![IMG_1645](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/0177e9ef-5e4a-4ca1-b8cd-a46ef9220819)
+ub.com/splatwenthespider/splatwenthespider/assets/139278654/031c34d6-f365-4ba9-8ae6-c0ec68536164)
 ![dc9g7tm-f69329ad-179f-4cd8-ab3d-01dc836b0713](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/0c6c65ec-02d3-42d9-becc-282f5d4c87dc)
 ![dc9g7u1-f571cfe9-e3c5-46ee-925d-a44d4b69de06](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/3712e309-076d-4aa1-91ff-64abf5e5813e)
 ![dc9g7tw-d2a87f2e-d189-4d0c-a5a5-c2b4e11ab43e](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/51cb6387-3c9a-46e3-b728-6f75b232de21)
@@ -91,6 +94,9 @@ TW FLASHING/EYE STRAIN !!
 ![overwatch__soldier_76_by_babykttn_da02zzf-fullview](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/a9164bbc-8e2a-4f3e-949a-30fe82c5b2b4)
 ![lucio_stamp_by_wynbird_db3i0km-fullview](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/b689df26-8c1d-488f-8509-ad9e9a5959f1)
 ![overwatch__junkrat_by_babykttn_da02xai-fullview](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/78f714f6-a7d1-4971-9f13-3f4aa3df09d6)
+![stamp_template_by_ruxeki-da60dj1](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/b9a1bc7e-b8a8-4b20-bbe7-a3cdf3d2640f)
+![tumblr_4f02d07f931972e023a4a309d89798b6_6c61671d_100](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/13e2e641-e79d-4a78-953d-7471e5d99247)
+![tumblr_25bcf717a32434fde4e63628f3394c18_5a4efbec_100](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/c0716dee-2d28-4d31-bd65-f25138c1aa3e)
 
 
 
