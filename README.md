@@ -72,6 +72,7 @@ TW FLASHING/EYE STRAIN !!
 ![dadr9wx-04c76865-6ed4-4a5f-9ef2-195d9cd91334](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/db79b0bf-292c-4ba5-8a58-5074f0e3f68b)
 ![273640117-031c34d6-f365-4ba9-8ae6-c0ec685![dg94ivw-7539b137-04b0-4133-9c35-dd18e330feda](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/fc01cfe7-9e36-41cd-9902-a12a6c679408)
 36164](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/2347d98c-cea8-47c0-8c8b-743a517a6dd5)
+![dg94ivw-7539b137-04b0-4133-9c35-dd18e330feda](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/9c26bed1-e0f6-4cdb-b5f4-78f42199fdbc)
 ![dc9g7tm-f69329ad-179f-4cd8-ab3d-01dc836b0713](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/0c6c65ec-02d3-42d9-becc-282f5d4c87dc)
 ![dc9g7u1-f571cfe9-e3c5-46ee-925d-a44d4b69de06](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/3712e309-076d-4aa1-91ff-64abf5e5813e)
 ![dc9g7tw-d2a87f2e-d189-4d0c-a5a5-c2b4e11ab43e](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/51cb6387-3c9a-46e3-b728-6f75b232de21)
