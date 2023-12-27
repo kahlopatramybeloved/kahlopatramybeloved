@@ -120,10 +120,10 @@ TW FLASHING/EYE STRAIN !!
 
 
 FEEL FREE TO USE!!
-creds:
+creds to most of them:
 
 https://rentry.co/wiltedstamps
 https://rentry.co/stampstuck
 https://rentry.co/germstamp
 https://rentry.co/wtmgtd
-
+https://www.deviantart.com/overwatch-ladies/gallery/58455347/stamps-and-buttons
