@@ -37,6 +37,16 @@ TW FLASHING/EYE STRAIN !!
 ![12d0e126](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/c6bfe05b-5e3a-4702-b76f-b1cfe5883757)
 ![tumblr_b49c54bb27b3f2c3d19477b98b7a54c8_a886ce7f_100](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/8d08b3e9-f29c-40a0-8df7-d7f394665e23)
 ![eGi7brH](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/8f57cf4c-5099-43f1-b29c-7767a79ac325)
+![ce709e96](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/31bb0a6e-8303-441e-b268-ef5063539c6f)
+![tumblr_f5a614012f4608807cf2413a4d8ddb9d_af289642_100](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/22c0e579-da10-46be-b6b1-e95cf5061ff5)
+![tumblr_phz8eoUKj01xzybrpo3_100](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/f7c5a016-f0b6-443b-800a-37be92d60026)
+![tumblr_ab85edc0cf776f5fda2c93b7c3a551fe_ce475f65_100](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/15b6473c-c9ce-4f6c-b957-a9a58a9164d9)
+![bb3bb0a6](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/3435b300-6d8c-4199-9f97-cab8b6f0124c)
+![happycat_stamp_by_mochizukidesigns](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/aeb28472-719b-4ae5-ac21-721bc37225b8)
+![63ec5412f302a26116cb048f79e0edce](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/fbbb5a6f-b190-4618-af08-075a1105641b)
+![MARIOFUCKAYOUUUU](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/5c778a38-71c8-437f-8937-0cf7c882656b)
+![01-29](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/ce691eb1-63ad-472f-b1a9-fc6cc58d6efd)
+![d5myhff-8e87df76-e0e6-413e-948b-46aaaa133644](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/0f0c97e0-fbfb-46f7-9959-04ba3995c01e)
 
 ![da05ya9-839674e0-4cc0-4438-8f8e-136c222c2200](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/25e47764-f6a1-4e4d-99eb-9d28cf662ce1)
 ![dadr9wx-04c76865-6ed4-4a5f-9ef2-195d9cd91334](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/db79b0bf-292c-4ba5-8a58-5074f0e3f68b)
@@ -87,4 +97,6 @@ TW FLASHING/EYE STRAIN !!
 
 
 FEEL FREE TO USE!!
+
+https://rentry.co/wiltedstamps
 
