@@ -27,7 +27,6 @@ I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLE
 ![0021-vampirefangs](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/bd52dede-ea07-404d-b55a-639834f5bef1)
 ![a65a90f2](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/0bfb53e5-f22c-4a67-bbec-f9314c452a33)
 ![tumblr_inline_pcjgdawteA1vss73l_1280](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/00e73096-624f-48b8-950d-7e6309b458f7)
-![yeha](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/09d1a369-6201-492c-b505-4bb7e5779df9)
 ![252731rd2czu7vk5](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/be3a9010-772d-48f6-923a-a7f11bcdb2f3)
 ![scream](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/4a8b51a1-7210-41c2-99df-678f2b774cb6)
 
