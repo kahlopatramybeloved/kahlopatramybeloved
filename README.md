@@ -30,6 +30,9 @@ I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLE
 ![252731rd2czu7vk5](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/be3a9010-772d-48f6-923a-a7f11bcdb2f3)
 ![scream](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/4a8b51a1-7210-41c2-99df-678f2b774cb6)
 
+![nP0JS9V](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/68156be8-ec14-40be-9388-861f039730e7)
+![mQf2H7u](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/95c86c1d-158c-4d1c-a3a6-6e819d576ae3)
+
 ![da05ya9-839674e0-4cc0-4438-8f8e-136c222c2200](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/25e47764-f6a1-4e4d-99eb-9d28cf662ce1)
 ![dadr9wx-04c76865-6ed4-4a5f-9ef2-195d9cd91334](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/db79b0bf-292c-4ba5-8a58-5074f0e3f68b)
 ![dbjb9wp-91e653f2-1b27-4f6d-94ec-34cc367de015](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/031c34d6-f365-4ba9-8ae6-c0ec68536164)
