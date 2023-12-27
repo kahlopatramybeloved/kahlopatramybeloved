@@ -1,4 +1,4 @@
-TW FLASHING/EYE STRAIN, GORE !!
+TW FLASHING/EYE STRAIN !!
 -
 -
 -
@@ -29,6 +29,7 @@ I LOVE COLLECTINGG !!! ![x3](https://github.com/kahlopatramybeloved/I-LOVE-COLLE
 ![tumblr_inline_pcjgdawteA1vss73l_1280](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/00e73096-624f-48b8-950d-7e6309b458f7)
 ![252731rd2czu7vk5](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/be3a9010-772d-48f6-923a-a7f11bcdb2f3)
 ![scream](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/4a8b51a1-7210-41c2-99df-678f2b774cb6)
+![dehy0lh-2cec03fb-327b-48b7-937e-61ec1020a15a](https://github.com/kahlopatramybeloved/kahlopatramybeloved/assets/139278654/9611029d-0ade-4120-8177-5b945437e212)
 
 ![nP0JS9V](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/68156be8-ec14-40be-9388-861f039730e7)
 ![mQf2H7u](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/95c86c1d-158c-4d1c-a3a6-6e819d576ae3)
