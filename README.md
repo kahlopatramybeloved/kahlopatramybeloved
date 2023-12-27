@@ -58,6 +58,15 @@ TW FLASHING/EYE STRAIN !!
 ![n13abJi](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/fd3e3d6c-f7fd-4fb9-8a0e-120e78761300)
 ![tumblr_prx0uwGciN1xzybrpo3_100](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/42886123-abb3-4913-a15e-40ae69a60dd7)
 ![tumblr_prx0uwGciN1xzybrpo2_100](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/4bbe31b5-0693-4f53-afaf-34d287c039b1)
+![698136b6e492819df80bdea49a13605d17030bfc](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/6c379254-25b7-4308-bd21-35c4b07a4a01)
+![ddafxsr-85b54cdd-5e91-442c-98f2-74591f143d09](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/97941abe-d8a1-4849-8b24-01b06b6c8887)
+![tumblr_5e20b1bb3dbffcafb05a3a6a9763558d_829651b3_100](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/53903a98-9263-41f2-b919-52f294dd3b1c)
+![fnaf2mangle](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/f9ae08dc-0220-48a4-889d-19a55f11d845)
+![fnaf2puppet](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/a8e321b8-ba06-4670-bf64-ae2184666609)
+![fnafslennard](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/e279d371-1611-4a8d-b5c9-dbdb123dd266)
+![kqIFcTw](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/e0fa26cc-31f1-41c9-b09a-c726799f08da)
+![tumblr_f4a73d56002c2db4c98f63ebf98d2abf_a0c92a32_100](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/e59e55cb-29b9-48b5-88f6-7f8526dd3a84)
+![tumblr_1cb93ea6cb652eb39aa0028ba858b49b_7ffabcb3_100](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/f230e7e7-33d7-4015-9be6-b7564f3839c1)
 
 ![da05ya9-839674e0-4cc0-4438-8f8e-136c222c2200](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/25e47764-f6a1-4e4d-99eb-9d28cf662ce1)
 ![dadr9wx-04c76865-6ed4-4a5f-9ef2-195d9cd91334](https://github.com/splatwenthespider/splatwenthespider/assets/139278654/db79b0bf-292c-4ba5-8a58-5074f0e3f68b)
@@ -113,4 +122,5 @@ TW FLASHING/EYE STRAIN !!
 FEEL FREE TO USE!!
 
 https://rentry.co/wiltedstamps
+https://rentry.co/stampstuck
 
