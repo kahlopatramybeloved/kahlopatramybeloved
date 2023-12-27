@@ -120,7 +120,10 @@ TW FLASHING/EYE STRAIN !!
 
 
 FEEL FREE TO USE!!
+creds:
 
 https://rentry.co/wiltedstamps
 https://rentry.co/stampstuck
+https://rentry.co/germstamp
+https://rentry.co/wtmgtd
 
